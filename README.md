@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SolomonRJ
 - 👀 I’m interested in Web Development
 - 🌱 I’m currently learning Building Full stack developer
-- 💞️ I’m looking to collaborate on various company and looking for better oppertunity
+- 💞️ I’m looking to collaborate on various company and looking for better oppertunity and good destiny 
 - 📫 How to reach me through my linked in Solomon Raja J and my email id : solomonraja299@gmail.com
 
 <!---
